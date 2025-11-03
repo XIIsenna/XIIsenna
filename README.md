@@ -26,16 +26,6 @@
   <img src="https://img.shields.io/badge/Mood-Chaotic%20Neutral-white?style=flat-square">
 </p>
 
-<!-- GITHUB STATS -->
-<p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=XIIsenna&show_icons=true&theme=graywhite&hide_border=true&icon_color=000000&title_color=000000&text_color=333333" alt="GitHub Stats" width="48%">
-  <img src="https://github-readme-streak-stats.herokuapp.com?user=XIIsenna&theme=default&hide_border=true&date_format=j%20M%5B%20Y%5D" alt="Streak" width="48%">
-</p>
-
-<!-- LANGUAGES -->
-<p align="center">
-  <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=XIIsenna&layout=compact&theme=graywhite&hide_border=true&title_color=000000&text_color=333333" alt="Top Languages" width="50%">
-</p>
 
 <!-- QUOTE -->
 <p align="center">
