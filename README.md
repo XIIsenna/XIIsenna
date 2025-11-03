@@ -8,7 +8,3 @@
 
 ![InShot_20251103_114952312](https://github.com/user-attachments/assets/971ba9a1-9854-4a1a-9794-416d18776aa7) <img width="100" height="100" alt="1738296865770" src="https://github.com/user-attachments/assets/f74d9738-2858-4026-b217-6e6eda0bf170" />
 
-
-
-https://github.com/user-attachments/assets/3e4bf0fb-88f6-429e-a02d-46c1a9885191
-
