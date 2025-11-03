@@ -27,11 +27,6 @@
 </p>
 
 
-<!-- QUOTE -->
-<p align="center">
-  <img src="https://quotes-github-readme.vercel.app/api?type=horizontal&theme=light&quote=Some%20people%20have%20talent.%20I%20have%20me.&author=Johnny%20Cage" alt="Johnny Cage Quote"/>
-</p>
-
 <!-- FOOTER -->
 <p align="center">
   <img src="https://readme-jokes.vercel.app/api?theme=graywhite" alt="Jokes" width="400">
