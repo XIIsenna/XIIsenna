@@ -37,4 +37,7 @@
   <img src="https://readme-jokes.vercel.app/api?theme=graywhite" alt="Jokes" width="400">
 </p>
 
+<p align="center">
+  <img src="https://raw.githubusercontent.com/XIIsenna/XIIsenna/main/banner.png" alt="Banner" width="100%">
+</p>
 
