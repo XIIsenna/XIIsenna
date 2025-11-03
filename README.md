@@ -16,7 +16,7 @@
 
 
 <!-- TITLE -->
-<h1 align="center">🥂 Johnny Mode: Activated 🕶️</h1>
+<h1 align="center">  Johnny Mode: Activated 🕶️</h1>
 <p align="center">"The camera loves me, baby — code does too."</p>
 
 <!-- BADGES -->
