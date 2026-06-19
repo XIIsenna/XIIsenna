@@ -10,4 +10,3 @@
 <p align="center">
 $\color{#FF0000}{.}$
 </p>
- ${\color{red}sdadsdadsda}$$
