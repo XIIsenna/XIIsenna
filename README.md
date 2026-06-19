@@ -14,6 +14,6 @@ $\color{#FF0000}{DNI\space :}$
 <p align="center">
   $\color{#FF0000}{people\space who\space think\space they\space own\space a\space spot\space or\space area.}$
 </p>
-This site was built using [GitHub Pages](https://pages.github.com/).
+
 
 
