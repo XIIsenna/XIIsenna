@@ -7,7 +7,7 @@
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 </p>
 <p align="center">
- usually sitting with [RAIDEN](https://example.com) do NAWT annoy my femboy 
+ usually sitting with [Raiden](https://pages.github.com/). do NAWT annoy my femboy 
 </p>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
