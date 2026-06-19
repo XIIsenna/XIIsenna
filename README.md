@@ -11,6 +11,4 @@
 $\color{#FF0000}{.}$
 </p>
 
-<font color="#8B004B">
-bruh
-</font>
+<font color="#8B004B"> bruh </font>
