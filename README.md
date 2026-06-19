@@ -8,5 +8,5 @@
 </p>
 
 <p align="center">
-$\color{#FF0000}{.spacesspacea}$
+$\color{#FF0000}{.s\spaces\space}$
 </p>
