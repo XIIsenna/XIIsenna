@@ -5,7 +5,10 @@
 
 <p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
-   $\color{#FF0000}{blep}$
+</p>
+
+<p align="center">
+$\color{#FF0000}{.}$
 </p>
 
 
