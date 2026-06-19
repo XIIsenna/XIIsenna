@@ -10,5 +10,3 @@
 <p align="center">
 $\color{#FF0000}{.}$
 </p>
-#f03c15 <span style="color: green"> Some green text </span>
-
