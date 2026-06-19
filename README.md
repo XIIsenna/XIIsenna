@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-$\color{#FF0000}{DNI : people who think they own a spot}$
+\color{#FF0000}{DNI :  people  who  think  they  own  a  spot}$
 </p>
 
 
