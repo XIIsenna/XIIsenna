@@ -6,8 +6,8 @@
 <p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 </p>
-
+$\color{Red}\Huge{\textsf{Huge, colored text}}$
 <p align="center">
 $\color{#FF0000}{.}$
 </p>
-$\color{Red}\Huge{\textsf{Huge, colored text}}$
+
