@@ -10,3 +10,4 @@
 <p align="center">
 $\color{#FF0000}{.}$
 </p>
+$\color{Red}\Huge{\textsf{Huge, colored text}}$
