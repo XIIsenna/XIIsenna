@@ -7,7 +7,7 @@
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 </p>
 <p align="center">
-  mostly sitting with [Raiden](url) do NAWT annoy my femboy
+  mostly sitting with Raiden do NAWT annoy my femboy
   </p>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
@@ -15,4 +15,5 @@ $\color{#FF0000}{DNI\space :}$
 <p align="center">
   $\color{#FF0000}{people\space who\space think\space they\space own\space a\space spot\space or\space area.}$
 </p>
-[Raiden](url)
+
+a[a](url)
