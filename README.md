@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-$\color{#FF0000}{DNI\space\:\space\people}$
+$\color{#FF0000}{DNI\space\.\space\people}$
 </p>
 
 
