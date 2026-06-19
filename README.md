@@ -8,6 +8,6 @@
 </p>
 
 <p align="center">
-$\color{#FF0000}{heavy dni :}$
+$\color{#FF0000}{.}$
 </p>
 
