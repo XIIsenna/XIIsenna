@@ -7,7 +7,7 @@
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 </p>
 <p align="center">
- 
+ usually sitting with @infernal_catherasis do NAWT annoy my femboy 
 </p>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
