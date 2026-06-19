@@ -14,5 +14,5 @@ $\color{#FF0000}{DNI\space :}$
   $\color{#FF0000}{people\space who\space think\space they\space own\space a\space character}$
 </p>
 <p align="center">
-$\color{#FF0000}{people\space who\space think\space they\space own\space an\space area}
+  $\color{#FF0000}{people\space who\space think\space they\space own\space an\space area}$
 </p>
