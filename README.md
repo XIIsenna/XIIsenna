@@ -11,6 +11,6 @@
 $\color{#FF0000}{DNI\space :}$
 </p>
 <p align="center">
-  $\color{#FF0000}{people\space who\space think\space they\space own\space a\space spot\space or\space area.\space like\space vro\space i\space keep\space seeing\space those\space weirdos\space every\space fucking\space where}$
+  $\color{#FF0000}{people\space who\space think\space they\space own\space a\space spot\space or\space area.\space like\space vro\space i\space keep\space seeing\space those\space weirdos\space everyfuckingwhere}$
 </p>
 
