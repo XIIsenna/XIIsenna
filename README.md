@@ -7,7 +7,6 @@
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 </p>
 <p align="center">
- usually sitting with [Raiden]([https://pages.github.com/](https://github.com/infernal-catharsis)). do NAWT annoy my femboy 
 </p>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
