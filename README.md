@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-$\color{#FF0000}{.}$
+$\color{#FF0000}{DNI\space:\spacepeople}$
 </p>
 
-<font color="#8B004B"> bruh </font>
+
