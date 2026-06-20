@@ -1,5 +1,5 @@
 ![1762162564407_cf20d187f40767c133b124526c6290e3_2_3_art](https://github.com/user-attachments/assets/3d6b8283-9271-4eb1-9fd8-e2709364805e)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jost&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=i+do+my+own+stunts.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jost&pause=1000&color=F7F7F7&center=true&width=435&lines=So+sleep+soundly+in+your+beds+tonight%2C;For+judgement+falls+upon+you+at+first+light.)](https://git.io/typing-svg)
 <p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
   <p align="center">
