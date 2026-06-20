@@ -7,8 +7,7 @@
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 </p>
 
-<p align="center">
-usually sitting with [Raiden](https://github.com/infernal-catharsis)
+<p align="center"> usually sitting with [Raiden](https://github.com/infernal-catharsis)
 </p>
 
 <p align="center">
