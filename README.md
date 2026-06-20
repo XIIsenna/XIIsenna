@@ -21,4 +21,4 @@ $\color{#FF0000}{DNI\space :}$
 
 </p>
 
-![](https://komarev.com/ghpvc/?username=XIISENNA&label=EYEZ&color=ff0000&style=flat-square)
+![](https://komarev.com/ghpvc/?username=XIISENNA&label=☆&color=ff0000&style=flat-square)
