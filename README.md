@@ -13,14 +13,14 @@
         </p>
           <p align="center">
             soulsborne enjoyer + gambling addiction on hoyoverse games
-</p>
+<p align="center">
+ don't copy/inspo my ponies. asking help for making one would never bite. 
+  </p>
+  </p>
   <p align="center">
       mostly drawing/gaming so be patient if u wanna int, i will answer once i see 
 <div align="center">
   
-<p align="center">
- don't copy/inspo my ponies. asking help for making one would never bite. 
-  </p>
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 </div>
