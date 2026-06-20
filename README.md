@@ -7,8 +7,10 @@
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 
   <p align="center">
-  mostly drawing / gaming so be patient if u wanna int, i will answer once i see 
+19 / INTJ
 </p>
+  <p align="center">
+      mostly drawing / gaming so be patient if u wanna int, i will answer once i see 
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
 </p>
