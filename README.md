@@ -11,6 +11,8 @@
           <p align="center">
         c + h is welcomed !
         </p>
+          <p align="center">
+            soulsborne enjoyer + gambling addiction on hoyoverse games
 </p>
   <p align="center">
       mostly drawing/gaming so be patient if u wanna int, i will answer once i see 
