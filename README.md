@@ -18,6 +18,5 @@ $\color{#FF0000}{DNI\space :}$
   $\color{#FF0000}{those\space who\space think\space they\space own\space a\space spot\space or\space area.}$
 </p>
 <p align="center">
-![](https://komarev.com/ghpvc/?username=XIISENNA&label=☆&color=ff0000&style=flat-square)
+  <img src="https://komarev.com/ghpvc/?username=XIISENNA&color=red" />
 </p>
-
