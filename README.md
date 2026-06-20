@@ -17,7 +17,7 @@
 <div align="center">
   
 <p align="center">
- don't copy/inspo my ponies. i don't like putting effort only to see someone color picking or copy the whole appereance since i saw a lot of ppl doing ts.
+ don't copy/inspo my ponies. asking help for making one would never bite. 
   </p>
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
