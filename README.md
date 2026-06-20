@@ -1,12 +1,8 @@
+<p align="center">
+. ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=XIISENNA&label=Profile%20Views&color=ff0000" alt="Profile Views" />
 </div>
-
-   
-
-<p align="center">
-. ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
-
   <p align="center">
 19 / INTJ
 </p>
