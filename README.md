@@ -14,7 +14,11 @@
       <p align="center">
         c + h is welcomed !
         </p>
-        ___
+<div align="center">
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+</div>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
 </p>
