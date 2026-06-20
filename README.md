@@ -7,7 +7,7 @@
 <p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
   <p align="center">
-19 / INTJ
+19 / INTJ / Call me Senna
 </p>
   <p align="center">
       mostly drawing / gaming so be patient if u wanna int, i will answer once i see 
