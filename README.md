@@ -32,5 +32,5 @@ $\color{#FF0000}{DNI\space :}$
 </p>
 
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=XIISENNA&label=Profile%20Views&color=ff0000" alt="Profile Views" />
+  <img src="https://komarev.com/ghpvc/?username=XIISENNA&label=FLASHLIGHTS&color=ff0000" alt="Profile Views" />
 </div>
