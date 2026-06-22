@@ -28,7 +28,7 @@
 $\color{#FF0000}{DNI\space :}$
 </p>
 <p align="center">
-  $\color{#FF0000}{those\space who\space think\space they\space own\space a\space spot\space or\space area.}$
+  $\color{#FF0000}{under\space 14}$
 </p>
 
 <div align="center">
