@@ -36,7 +36,7 @@
 $\color{#FF0000}{DNI\space :}$
 </p>
 <p align="center">
-  $\color{#FF0000}{under\space 14\space /\space problematics}$
+  $\color{#FF0000}{under\space 14\space (unless\space i\space know\space you) /\space problematics}$
 </p>
 
 <div align="center">
