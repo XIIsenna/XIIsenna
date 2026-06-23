@@ -40,7 +40,7 @@ BYI : please avoid spamming with whispers if i'm not answering, i'd block once i
 $\color{#FF0000}{DNI\space :}$
 </p>
 <p align="center">
-  $\color{#FF0000}{under\space 15\space (unless\space i\space know\space you) /\space protree/prospot\space /\space basic\space criteria}$
+  $\color{#FF0000}{under\space 15\space (unless\space i\space know\space you) /\space prospot\space /\space basic\space criteria}$
 </p>
 
 <div align="center">
