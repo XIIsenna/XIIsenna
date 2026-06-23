@@ -22,7 +22,7 @@
       mostly drawing/gaming so be patient if u wanna int, i will answer once i see.
 <div align="center">
 <p align="center">
-BYI : please avoid spamming with whispers if i'm not answering, i'd block once it gets annoying. i do not tolerate people who embarrass themselves over sticking to a spot, heavy dni.
+BYI : please avoid spamming with whispers if i'm not answering, i'd block once it gets annoying. i don't tolerate people who embarrass themselves over sticking to a spot.
 
 <img src="https://files.catbox.moe/4lvn56.png" width="700">
 
