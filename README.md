@@ -23,7 +23,7 @@
   
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 <p align="center">
-<img width="3139" height="2381" alt="Untitled92_20251103130249" src="https://github.com/user-attachments/assets/1e8fc4ef-26da-4103-bf81-1dd01a9e2302" />
+[<img width="3139" height="2381" alt="Untitled92_20251103130249" src="https://github.com/user-attachments/assets/1e8fc4ef-26da-4103-bf81-1dd01a9e2302" />](https://github.com/XIIsenna/XIIsenna/blob/main/Untitled92_20251103130249.png?raw=true)
   </p>
   
 </div>
