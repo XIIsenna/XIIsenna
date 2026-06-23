@@ -27,7 +27,9 @@
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ ⚝ ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 
 <p align="center">
-BYI : please avoid spamming with whispers if i'm not answering, i'd block once it gets annoying. i don't tolerate people who embarrass themselves over sticking to a spot.
+BYI : please avoid spamming with whispers if i'm not answering, i'd block once it gets annoying.
+  <p align="center">
+  i don't tolerate people who embarrass themselves over sticking to a spot.
 <p align="center">
 
   </p>
