@@ -24,7 +24,7 @@
 
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ 🜲 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 
-<img src="https://files.catbox.moe/4lvn56.png" width="1000">
+<img src="https://files.catbox.moe/4lvn56.png" width="700">
 
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ ⚝ ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 
