@@ -23,7 +23,7 @@
   
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 <p align="center">
-(https://github.com/user-attachments/assets/1e8fc4ef-26da-4103-bf81-1dd01a9e2302)
+
   </p>
   
 </div>
