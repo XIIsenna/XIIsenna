@@ -16,7 +16,7 @@
         c + h is welcomed !
         </p>
           <p align="center">
-            soulsborne enjoyer + gambling addiction on hoyoverse games.
+            soulsborne enjoyer + gambling addiction
 <p align="center">
  don't copy/inspo my ponies. asking help for making one would never bite. 
   </p>
