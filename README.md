@@ -28,6 +28,9 @@
 
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ ⚝ ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 
+<p align="center">
+
+  </p>
 </div>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
