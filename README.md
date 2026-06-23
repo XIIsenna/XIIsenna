@@ -22,7 +22,7 @@
       mostly drawing/gaming so be patient if u wanna int, i will answer once i see.
 <div align="center">
 
-  .  ׅ ۟ ֪  🜲 ⬞ . ۟  .
+┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ 🜲 ┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 
 <img src="https://files.catbox.moe/4lvn56.png" width="1000">
 </div>
