@@ -21,7 +21,7 @@
       mostly drawing/gaming so be patient if u wanna int, i will answer once i see.
 <div align="center">
   
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈
 
 </div>
 <p align="center">
