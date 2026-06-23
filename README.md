@@ -23,9 +23,7 @@
 <div align="center">
   
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
-<p align="center">
-
-  </p>
+<img src="https://files.catbox.moe/4lvn56.png" width="500">
 </div>
 <p align="center">
 $\color{#FF0000}{DNI\space :}$
