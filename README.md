@@ -25,7 +25,6 @@
 <img src="https://files.catbox.moe/4lvn56.png" width="700">
 
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ ⚝ ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
-
 <p align="center">
 BYI : please avoid spamming with whispers if i'm not answering, i'd block once it gets annoying.
   <p align="center">
