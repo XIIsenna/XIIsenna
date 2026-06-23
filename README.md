@@ -23,9 +23,7 @@
 <div align="center">
   
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
-<p align="center">
 https://files.catbox.moe/4lvn56.png
-  </p>
   
 </div>
 <p align="center">
