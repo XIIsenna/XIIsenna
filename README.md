@@ -24,7 +24,7 @@
   
 ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
 <p align="center">
-<img width="3139" height="2381" alt="Untitled92_20251103130249" src="https://github.com/user-attachments/assets/0ddd1ac6-de70-4225-b9c3-94b76def3d12" />
+https://files.catbox.moe/4lvn56.png
   </p>
   
 </div>
