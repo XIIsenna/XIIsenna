@@ -29,7 +29,7 @@
 <p align="center">
 BYI : please avoid spamming with whispers if i'm not answering, i'd block once it gets annoying.
   <p align="center">
-  i don't tolerate people who embarrass themselves over sticking to a spot.
+  i don't tolerate people who embarrass themselves over sticking to a spot, keep ur stupid pixels away from me.
 <p align="center">
 
   </p>
