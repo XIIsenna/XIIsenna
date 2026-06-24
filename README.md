@@ -11,7 +11,7 @@
 <p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
   <p align="center">
-19 / INTJ / Call me Senna
+19 / INTJ / call me Senna
           <p align="center">
         c + h is welcomed !
         </p>
