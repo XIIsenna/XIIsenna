@@ -9,9 +9,11 @@
 </div>
 
 <p align="center">
+<img src="https://files.catbox.moe/pqsf5q.png" width="700">
+ </p>
+ 
+<p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
-  <p align="center">
-19 / INTJ / call me Senna
           <p align="center">
         c + h is welcomed !
         </p>
