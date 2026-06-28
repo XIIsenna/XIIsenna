@@ -1,5 +1,4 @@
 <p align="center">
- ◜  🜲  ◞ 
 </p>
 
 ![1762162564407_cf20d187f40767c133b124526c6290e3_2_3_art](https://github.com/user-attachments/assets/3d6b8283-9271-4eb1-9fd8-e2709364805e)
@@ -8,6 +7,11 @@
 <img src="https://files.catbox.moe/lklszg.png">
  </p>
  
+<img src="https://files.catbox.moe/4lvn56.png" width="700">
+
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Jost&pause=1000&color=F7F7F7&center=true&width=435&lines=So+sleep+soundly+in+your+beds+tonight%2C;For+judgement+falls+upon+you+at+first+light." />
+</div>
 <p align="center">
 . ⚞ ˓˓ 𝟙𝟚⋮⩇⩇ ˒˒ ⚟ . 
           <p align="center">
@@ -23,18 +27,12 @@
       mostly drawing/gaming so be patient if u wanna int, i will answer once i see.
 <div align="center">
 
-<img src="https://files.catbox.moe/4lvn56.png" width="700">
-
-<div align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Jost&pause=1000&color=F7F7F7&center=true&width=435&lines=So+sleep+soundly+in+your+beds+tonight%2C;For+judgement+falls+upon+you+at+first+light." />
-</div>
-
 <p align="center">
 BYI : please avoid spamming with whispers if i'm not answering, i'd block when it gets annoying.
   <p align="center">
   i don't tolerate people who embarrass themselves over sticking to a spot, keep ur stupid pixels away from me.
 <p align="center">
-┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉ ⚝ ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
+┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉   ◜  🜲  ◞   ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
   </p>
 </div>
 <p align="center">
