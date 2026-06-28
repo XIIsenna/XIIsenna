@@ -36,8 +36,9 @@ please avoid spamming with whispers if i'm not answering, i'd block when it gets
 <p align="center">
 $\color{#FF0000}{DNI\space :\space under\space 15\space (unless\space i\space know\space you) /\space prospot\space /\space basic\space criteria}$
 </p>
-
-
+<p align="center">
+◜ 🜲 ◞
+  </p>
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=XIISENNA&label=FLASHLIGHTS&color=8b0000&style=for-the-badge" alt="Profile Views" />
 </div>
