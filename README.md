@@ -34,7 +34,7 @@ BYI : please avoid spamming with whispers if i'm not answering, i'd block when i
   <p align="center">
   i don't tolerate people who embarrass themselves over sticking to a spot, keep ur stupid pixels away from me.
 <p align="center">
-┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉   ◜  🜲  ◞   ┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉┈┉
+<img src="https://files.catbox.moe/tk4l3r.png">
   </p>
 </div>
 <p align="center">
