@@ -7,7 +7,9 @@
 <img src="https://files.catbox.moe/lklszg.png">
  </p>
  
+ <p align="center">
 <img src="https://files.catbox.moe/4lvn56.png" width="700">
+</p>
 
 <div align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Jost&pause=1000&color=F7F7F7&center=true&width=435&lines=So+sleep+soundly+in+your+beds+tonight%2C;For+judgement+falls+upon+you+at+first+light." />
