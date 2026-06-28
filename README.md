@@ -9,7 +9,7 @@
 </div>
 
 <p align="center">
-<img src="https://files.catbox.moe/pqsf5q.png" width="700">
+<img src="https://files.catbox.moe/pqsf5q.png">
  </p>
  
 <p align="center">
