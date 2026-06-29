@@ -24,11 +24,8 @@
   </p>
   </p>
   <p align="center">
-      mostly drawing/gaming so be patient if u wanna int, i will answer once i see.
-<div align="center">
-
-<p align="center">
-please avoid spamming with whispers if i'm not answering, i'd block when it gets annoying.
+      mostly drawing/gaming so be patient if u wanna int, i will answer once i see. 
+    
 <p align="center">
 <img src="https://files.catbox.moe/tk4l3r.png">
   </p>
