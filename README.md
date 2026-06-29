@@ -20,8 +20,7 @@
           <p align="center">
             soulsborne enjoyer + gambling addiction
 <p align="center">
- don't copy/inspo my ponies. asking help for making one would never bite. 
-  </p>
+ don't copy/inspo my ponies. asking help would never bite. 
   </p>
   <p align="center">
 mostly drawing or gaming so i'm 90% offtab and the other 10% might be interacting with a friend. make sure to whisper cuz i usually miss public chats due to being offtab. when you did, please be patient. i will answer once i see your whisper. if you had anything important to say and i didn't respond, drop it in my atabook!
