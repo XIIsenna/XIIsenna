@@ -39,6 +39,6 @@ $\color{#FF0000}{DNI\space :\space under\space 15\space (unless\space i\space kn
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31op4rt6lzomvnc2o72gkapzx5ii&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=dd0303&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31op4rt6lzomvnc2o72gkapzx5ii&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=dd0303&bar_color_cover=true">
   </a>
 </p>
