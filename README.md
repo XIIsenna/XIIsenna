@@ -1,4 +1,4 @@
-@NASHlKI @phoneaafriend guys wake up pls
+
 <p align="center">
 <img src="https://files.catbox.moe/tk4l3r.png" scale:3">
   </p>
